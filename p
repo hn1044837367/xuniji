@@ -1,19 +1,2 @@
-anjavlvan
-bkmlbm
-akdvmakvma;ic
-sb
-b
-b
-b
-b
-b
-
-b
-b
-b
-b
-b
-b
-b
-b
-bivnavnnv:ccccccc
+git ? yes
+oh yes
